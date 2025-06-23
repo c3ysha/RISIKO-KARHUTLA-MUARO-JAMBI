@@ -1,2 +1,2 @@
-# RISIKO-KARHUTLA-MUARO-JAMBI
+# RISIKO-
 Analisis Risiko Kebakaran Hutan dan Lahan
